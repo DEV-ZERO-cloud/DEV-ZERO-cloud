@@ -6,7 +6,7 @@
 I’m **Andres Felipe Rubiano Marrugo**, an undergraduate student pursuing a **B.Sc. in Systems and Computer Engineering** at **Universidad Tecnológica de Bolívar (UTB)**.
 
 * **How to contact me:** **[andresrubianomarrugo@gmail.com](mailto:andresrubianomarrugo@gmail.com)**
-* **LinkedIn:** [andres-felipe-rubiano-marrugo](https://linkedin.com/in/andres-felipe-rubiano-marrugo-b073b91)
+* **LinkedIn:** [andres-felipe-rubiano-marrugo](https://linkedin.com/in/andres-felipe-rubiano-marrugo-b073b91a7)
 
 ---
 
